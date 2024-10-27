@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Anastasiia-Lomonosova
+- 👀 I’m interested in medicine, QA, bouldering
